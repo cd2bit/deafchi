@@ -4,7 +4,7 @@ Reminders:
 1. Focus on scenarios / behavior patterns of personas, not demographics / mere backgrounds of personas
     - Describes the flow of an persona's day, environment, skillsets and goals
     - Compare and contrast between personas' stories, finding a common thread between scenarios
-2. Identify a dominant story, goals, and gapss through research and interviews
+2. Identify a dominant story, goals, and gaps through research and interviews
 
 ## Audience - Directory - Browsing
 
