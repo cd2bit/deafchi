@@ -18,11 +18,11 @@ As an international student, Saad has been taking classes at an university and h
 
 1. The people of Chicago has their own groups, and while they welcome those who are new, they tend to be content to stay comfortable with their own people, which is hard to break into.
 2. While Saad does not drink alcohol for personal reasons, he's comfortable with hanging out and having conversations with people at the bars; however, since they know that he doesn't drink, he doesn't get invited as much as those who drink. 
-3. Many of the social events he discovers online are one-time type of event, or a deaf-related event that, as he later would realize, attracts a higher number of hearing sign language students than deaf/hard-of-hearing people. In the first type of event, he meets interesting people, but rarely any contact has turned out to be something. In the second type of event, while he enjoys meeting hearing students, he'd prefer to get to know someone who shares the same language heritage (signed)
+3. Many of the social events he discovers online are one-time type of event, or a deaf-related event that, as he later would realize, attracts a higher number of hearing sign language students than deaf/hard-of-hearing people. In the first type of event, he meets interesting people, but rarely any contact has turned out to be something. In the second type of event, while he enjoys meeting hearing students, he'd prefer to get to know someone who shares the same language heritage for signed.
 
 In addition to looking for new friends, he's seeking a volunteer tutor who would help him with written English (Already, he's fluent in both spoken/written and sign language of his native country and British and American Sign Languages). His current tutor, provided by the university, does not sign, which makes it difficult to help translate sign language concepts and structure into written English structure.
 
-Before he graduates, he'd like to explore more of Chicago and what it offers. To get around, he relies on public transportation, and is knowledgable about how it works. For this reason, he looks for events that are easy to get there. More specifically, events that are low-key entertainment, like games, and are easy to strike up good conversations, especially about international cultures, learning new topics, and career opportunities.  
+Before he graduates, he'd like to explore more of Chicago and what it offers. To get around, he relies on public transportation, and is knowledgable about how it works. For this reason, he looks for events that are easy to get there. More specifically, events that are low-key entertainment, like games, and are easy to strike up good conversations about international cultures, accounting/math topics, and career opportunities.  
 
 **Future Scenario**
 
@@ -35,7 +35,7 @@ Before he graduates, he'd like to explore more of Chicago and what it offers. To
 After living in Chicago for few years (having moved from Taiwan) with her husband and two children, who are in middle school, Yawen is seeking for understand what educational assistance, resources and opportunities are there in Chicago for her daughter (oldest) and more specifically, her deaf son (youngest):
 
 1. The daughter, Mei, is hearing, and is comfortable signing (in Taiwanese Sign Language - TSL) in basic conversations with her brother. Outgoing and enjoys meeting new people.
-2. The son, Chen, is deaf and is comfortable signing in TSL, his native language, and has a limited proficiency in American Sign Language, which he is also learning written English in school. When meeting new people and unlike Mei, Chen is reserved and rarely carries on the conversation; however, when he feels more comfortable with someone, he becomes relaxed, enjoys joking, and telling stories of his pranks on Mei and friends.
+2. The son, Chen, is deaf and is comfortable signing in TSL, his native language, and has a limited proficiency in American Sign Language, which he is also learning written English in school. When meeting new people and unlike Mei, Chen is reserved and rarely carries on the conversation; however, when he feels more comfortable with someone, he becomes relaxed, enjoys joking, and tells stories of his pranks on Mei and friends.
 
 Since her husband spends many hours working in a restaurant, the burden of finding educational assistance, resources and opportunities falls on Yawen. With limited proficiency in English language and knowledge of getting around in Chicago, Yawen relies much on her small circle of friends for support. Several whom Yawen met in Chinatown's community groups; others whom Yawen met through family connection and word of mouth on Facebook. However, they do not much knowledge related to deaf issues, so Yawen's method of learning about them has been through Chen's school and its teachers/staff. 
 
@@ -55,7 +55,7 @@ While Amani enjoys making connections at her events, she is frustrated by severa
 
 1. Being a public face, Amani gets recurring emails and messages asking for what organizations and events are there in the Chicago area. While she enjoys replying and helping them out, she is fatigued by repeating the same type of message, so she'd often copy and paste the previous message, and slightly personalize it.
 2. With organizations popping up and shutting down being common, it's difficult for Amani to track and stay updated on which one to recommend.
-3. Occasionally, she'd hear about a certain organization and realize that the organization has existed for a while, which she wishes that she has known about it when she had planned a recent event that they can both partner together.
+3. Occasionally, she'd hear about a certain organization and realize that the organization has existed for a while, which she wishes that she has known about it when she had planned a recent event that they could have both partnered together.
 
 Overall, Amani wants to continue organizing events, but be more smart about how she organizes and partners, and also to reduce the risks for burnout.
 
